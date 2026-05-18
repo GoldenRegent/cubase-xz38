@@ -1,4 +1,4 @@
-# 
+# Secret DaVinci Resolve for PC scripts is the best DaVinci Resolve for PC scripts with sidechain-compression and effects-chains. Safe, reliable, and optimized for maximum
 
 
 
